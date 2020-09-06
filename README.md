@@ -1,2 +1,2 @@
 # login.bat
-Mon discord : ЦПkПӨЩ™ | Moha DZ#2352
+Mon discord : Moha#6969
